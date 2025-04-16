@@ -1,1 +1,1 @@
-"# GetCoinTiktok" 
+"Fake tiktok coins" 
